@@ -1,1 +1,1 @@
-# documentation
+My problem-solving skills and my passion for coding have turned to a new path while developping many MS Access and MS Excel applications on top of my rоutine tasks.
